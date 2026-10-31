@@ -1,5 +1,5 @@
 ## maths
-UK Maths Trust (UKMT):
+UK Maths Trust (UKMT): \n
 Awarded Merit in the Junior Mathematical Olympiad (2024, 2025)
 Awarded "Best in School" and Gold in the Grey Kangaroo Mathematical Challenge (2026)
 Awarded “Best in Year” and Silver in the Grey Kangaroo Mathematical Challenge (2025)
